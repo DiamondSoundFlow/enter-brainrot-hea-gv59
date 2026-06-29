@@ -1,4 +1,4 @@
-
+enter brainrot heads Scripts new offers the most advanced enter brainrot heads Script, with aimbot and one-hit kill. Perfect for dominating any match.
 
 
 
